@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xiirunhim but you can call me Moth
+- 👋 Hi, I’m @xiirunhim but you can call me Moth or rev
 - 👀 I’m interested in apex,sonic the hedgehog,jjk,and dandadan
 - 🌱 I’m currently learning how to be a nurse more better
 - 💞️ I’m looking to collaborate on no one
