@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @xiirunhim but you can call me Moth or rev
-- 👀 I’m interested in apex,sonic the hedgehog (a lil),jjk,and dandadan
+- 👋 Hello, I’m xiirunhim but you can call me Moth or rev
+- 👀 I’m interested in apex,sonic the hedgehog (a lil),jjk,blue lock, and dandadan
 - 🌱 I’m currently learning how to be a nurse more better
 - 💞️ I’m looking to collaborate on no one
 - 📫 How to reach me non of your bussiess
